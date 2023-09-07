@@ -1,5 +1,8 @@
 ### BEM-VINDO 
 
-![ezgif-2-961dc3ab3b](https://github.com/dBra92/dBra92/assets/118290023/d95356ea-b7df-4a3c-9652-646da8bdfbc5)
-  
+![leona-league-of-legends](https://github.com/dBra92/dBra92/assets/118290023/4c6ca13e-81f1-4375-9640-c58e1942ffd1)
 
+
+<p align="center">
+  <img src="![leona-league-of-legends](https://github.com/dBra92/dBra92/assets/118290023/4c6ca13e-81f1-4375-9640-c58e1942ffd1)" />
+</p>
